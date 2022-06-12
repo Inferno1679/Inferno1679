@@ -1,1 +1,1 @@
-Hi I'm Inferno You Can Message Me On Discord(Inferno#6969) Or Through Email(i@inferno.site)
+Hi You Can Message Me Through Email(i@inferno.site)
