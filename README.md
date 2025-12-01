@@ -5,7 +5,6 @@
 
 -  I’m looking to collaborate on **anything interesting😁**
 
--  You can reach me **@hanania.eli on Insta**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
